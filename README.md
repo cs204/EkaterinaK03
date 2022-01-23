@@ -1,2 +1,0 @@
-# EkaterinaK03
-psets
